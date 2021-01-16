@@ -4,4 +4,4 @@ Everything is new.But my journey has only just began.
 
 The rest is up to you.
   2020.1.16
-It's a special day,remenber?You'll never forget it.Don't forget to cellebrate today.
+It's a special day,remember?You'll never forget it.Don't forget to celebrate today.
